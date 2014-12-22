@@ -36,33 +36,39 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Domestycal or housholde sermons for a godly housholder, to his children and famyly, compiled by the 
+
+1. Chriſtophorus Hegendorffyne, Doctour of ye law, to the right wiſe & excellent man lord Thomas Reiben ſenatour of Francoforte▪ by ſyde Oderam, hys ſynguler good patron, wiſſheth health.
+
 #####Body#####
 
-1. ✚ The fyrſte houſhold ſermon vnto their chyldren & famylie
+1. A communication of the lordes prayer, Betwene Chriſtopher and Ierome.
+✚ The fyrſte houſhold ſermon vnto their chyldren & famylieWElbeloued chyldrē, Saynt Paule, yea God 
+    _ ✚ The fyrſte houſhold ſermon vnto their chyldren & famylie
 
-1. The ſeconde houſholde ſermon vnto theyr chyldren and famylie.
+    _ The ſeconde houſholde ſermon vnto theyr chyldren and famylie.
 
-1. The thyrd howſhold ſermon vnto their Chyldren and famylye.
+    _ The thyrd howſhold ſermon vnto their Chyldren and famylye.
 
-1. The fourth houſholde Sermon vnto theyr Chyldren and famylye.
+    _ The fourth houſholde Sermon vnto theyr Chyldren and famylye.
 
-1. The fyfte houſholde Sermon vnto theyr Chyldren and famylye.
+    _ The fyfte houſholde Sermon vnto theyr Chyldren and famylye.
 
-1. The ſyxte houſholde Sermon vnto theyr Chyldren and famylye.
+    _ The ſyxte houſholde Sermon vnto theyr Chyldren and famylye.
 
-1. The ſeuenth houſhold Sermon vnto their Chyldren and famylye.
+    _ The ſeuenth houſhold Sermon vnto their Chyldren and famylye.
 
-1. The eight houſhold ſermon vnto their children and famylie
+    _ The eight houſhold ſermon vnto their children and famylie
 
-1. The nynthe-houſholde Sermon vnto theyr Chyldren and famylye.
+    _ The nynthe-houſholde Sermon vnto theyr Chyldren and famylye.
 
-1. The firſte houſholde Sermon of god the father, and the creation of all thynges.
+1. ¶ The Declaration of our belief, called in laten, ſimbolum apostolicum.
 
-1. The Seconde houſholde ſermon of the beliefe.
+    _ The firſte houſholde Sermon of god the father, and the creation of all thynges.
+
+    _ The Seconde houſholde ſermon of the beliefe.
 
 #####Back#####
-Domestycal or housholde sermons for a godly housholder, to his children and famyly, compiled by the 
+Prynted at Ippiſwich by Ihon OſivēCum priuilegio ad Imprimendum ſolum.The reſt of the ſermons ſhalbe printed ſhortlye.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
